@@ -1,2 +1,2 @@
-# Progetto-TecWeb
-DIEGO SEI STUPIDO
+# Progetto-TecWe
+Claudia sei peggio di Diego
